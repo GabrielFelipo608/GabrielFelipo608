@@ -1,2 +1,3 @@
-![](https://tenor.com/pt-BR/view/spiritus-cockroach-spinning-lightsaber-star-wars-gif-22129223)
+Salve manos 🤙
 
+![](https://media1.tenor.com/m/zZOt7alSzAMAAAAd/gojo-gojo-satoru.gif)
